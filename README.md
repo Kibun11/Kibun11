@@ -1,0 +1,5 @@
+-Hi, I’m @Kibun11
+-I’m interested in animation.
+-I’m currently learning colledj.
+-I’m looking to collaborate witc Humas
+-How to reach me. I dont now.
